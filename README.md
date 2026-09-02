@@ -1,2 +1,0 @@
-# srilabslk.github.io
-Ad
